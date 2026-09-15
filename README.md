@@ -213,4 +213,4 @@ King's Bounty: The Legend is available as a **complete free version** with all f
 Dive into the world of King's Bounty: The Legend today and experience the thrill of strategic gameplay like never before!
 
 ---
-**Last updated:** 2026-09-15 04:26:03 UTC
+**Last updated:** 2026-09-15 09:54:42 UTC
